@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @billybobjoerjrs
+- 👀 I’m interested in HollowKnight, LoZ, Nintendo, Smash Bros, and mods for all of them.
+- 🌱 I’m currently in school.
+- 📫 If you would like to reach me for whatever reason email me at matthjon001@gmail.com but NO SPAM
